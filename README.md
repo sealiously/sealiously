@@ -31,7 +31,7 @@
 <br/>
 
 <p align="left">
- $\color{#faa7bf}{ more~~in~/sealiously}$
+ $\color{#faa7bf}{  more~~in~/sealiously}$
  </p></p>
 
  <br/>
