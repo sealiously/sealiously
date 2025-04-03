@@ -1,16 +1,18 @@
-## Hi there 👋
+<p align="left">
+ $\color{#faa7bf}{ — github.com/sealiously}$
+ </p></p>
 
-<!--
-**sealiously/sealiously** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ <p align="left">
+ $\color{#eb4d7a}{꒰ᐢ. .ᐢ꒱₊˚⊹ ᰔ}$
+ </p>
+ 
+ lvl 100+ sword main\
+ current kd% ~3.965\
+ dmg rc 5419\
+ *20/<2 + 6k kd/dmg goal* 
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ <br/>
+ 
+  <p align="left">
+   <img width="260" height="85" src="https://github.com/user-attachments/assets/7da4aa09-07f5-4ca5-a1f8-4e24d6c7e3e5">
+ <br/>
