@@ -11,7 +11,7 @@
  
   lvl 100+ mobile sword main\
   current kd% ~3.965\
-  dmg prc 5419\
+  dmg prc 7443\
   *20/<2 + 6k kd/dmg goal* 
 
  <br/>
