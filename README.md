@@ -1,7 +1,7 @@
 ***
 $\color{#389ECA}{we could be seals in love ...}$\
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=sans+serif&weight=500&size=22&duration=4000&pause=1000&color=389ECA&width=435&lines=.%CB%9A+%F0%9F%AB%A7%E2%80%82%CE%B5(++%E0%B1%BF+%3E%E2%A9%8A%3C)%E2%80%82%F0%9F%92%97%E2%80%82(%E2%80%A2%E2%A9%8A%E2%80%A2+%E3%81%A3)3%E2%80%82%F0%9F%AB%A7+%EF%BD%A1%CB%9A" alt="Typing SVG" /></a>\
-<img width="9%" src="https://files.catbox.moe/okyffy.webp"> <img width="9%" src="https://files.catbox.moe/paiy38.webp"> <img width="9%" src="https://files.catbox.moe/rojafk.webp"> <img width="9%" src="https://files.catbox.moe/jlsrbp.webp"> <img width="9%" src="https://files.catbox.moe/yufj1i.webp">
+<img src="https://files.catbox.moe/okyffy.webp"> <img src="https://files.catbox.moe/paiy38.webp"> <img src="https://files.catbox.moe/rojafk.webp"> <img src="https://files.catbox.moe/jlsrbp.webp"> <img src="https://files.catbox.moe/yufj1i.webp">
 
     
 <pre>
