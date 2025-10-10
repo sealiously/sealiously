@@ -15,10 +15,10 @@ learning: java (AP CSA) & piano
 </pre>
 
 [![discord](https://img.shields.io/badge/ringedyuki%20-%20%235865F2?style=plastic&logo=discord&logoColor=white)](https://discord.com/channels/@me/1181405606029037652)
-[![twitter](https://img.shields.io/badge/twitter%2Fx%20-%20%23404f57?style=plastic&logo=x&logoColor=white)](https://x.com/sealfan89)
-[![roblox](https://img.shields.io/badge/roblox%20-%20%232d3640?style=plastic&logo=roblox&logoColor=white)](https://www.roblox.com/users/706276675/profile)
-[![toyhouse](https://img.shields.io/badge/toyhouse%20-%20%23313333?style=plastic&logo=reverbnation&logoColor=white)](https://toyhou.se/sealharbors)
-[![ko-fi](https://img.shields.io/badge/kofi%20-%20%23333333?style=plastic&logo=ko-fi&logoColor=white)](https://ko-fi.com/sealfan89)
-[![librarything](https://img.shields.io/badge/librarything%20-%20%23614b41?style=plastic&logo=librarything&logoColor=white)](https://www.librarything.com/profile/sf89)
+[![twitter](https://img.shields.io/badge/twitter%2Fx%20-%20%232b2d45?style=plastic&logo=x&logoColor=white)](https://x.com/sealfan89)
+[![roblox](https://img.shields.io/badge/roblox%20-%20%23222430?style=plastic&logo=roblox&logoColor=white)](https://www.roblox.com/users/706276675/profile)
+[![toyhouse](https://img.shields.io/badge/toyhouse%20-%20%231d1d26?style=plastic&logo=reverbnation&logoColor=white)](https://toyhou.se/sealharbors)
+[![ko-fi](https://img.shields.io/badge/kofi%20-%20%231f1f24?style=plastic&logo=ko-fi&logoColor=white)](https://ko-fi.com/sealfan89)
+[![librarything](https://img.shields.io/badge/librarything%20-%20%231e1f21?style=plastic&logo=librarything&logoColor=white)](https://www.librarything.com/profile/sf89)
 
 ***
