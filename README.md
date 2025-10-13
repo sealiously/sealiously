@@ -9,7 +9,7 @@ lvl 250+ mobile flex p! player
 pr dmg 7540 + kd 24/0/10 • kda ~4.54 
 📍 USA, CST/gmt-5/gmt-6
 
- <img src="https://files.catbox.moe/f1ggut.gif">
+ <img src="https://files.catbox.moe/f1ggut.gif"> <img src="https://files.catbox.moe/4nupv3.gif">
 i love seals, jazz, and art & animation
 learning: java (AP CSA) & piano
 </pre>
