@@ -19,6 +19,5 @@ learning: java (AP CSA) & piano
 [![roblox](https://img.shields.io/badge/roblox%20-%20%23222430?style=plastic&logo=roblox&logoColor=white)](https://www.roblox.com/users/706276675/profile)
 [![toyhouse](https://img.shields.io/badge/toyhouse%20-%20%231d1d26?style=plastic&logo=reverbnation&logoColor=white)](https://toyhou.se/sealharbors)
 [![ko-fi](https://img.shields.io/badge/kofi%20-%20%231f1f24?style=plastic&logo=ko-fi&logoColor=white)](https://ko-fi.com/sealfan89)
-[![librarything](https://img.shields.io/badge/librarything%20-%20%231e1f21?style=plastic&logo=librarything&logoColor=white)](https://www.librarything.com/profile/sf89)
 
 ***
