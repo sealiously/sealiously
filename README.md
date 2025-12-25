@@ -5,13 +5,15 @@ $\color{#389ECA}{we could be seals in love ...}$\
 
     
 <pre>
-lvl 250+ mobile flex p! player
+lvl 265+ (casual) mobile p! player
 pr dmg 7540 + kd 24/0/10 • kda ~4.54 
 📍 USA, CST/gmt-5/gmt-6
 
  <img src="https://files.catbox.moe/f1ggut.gif"> <img src="https://files.catbox.moe/4nupv3.gif">
-i love seals & jazz, i also do art/animation & comp tennis
+i love seals & jazz, i also do art & animation!
 learning: java (AP CSA) & piano
+
+🎖️ uil theater & science • comp art/tennis/+ more
 </pre>
 
 [![discord](https://img.shields.io/badge/ringedyuki%20-%20%235865F2?style=plastic&logo=discord&logoColor=white)](https://discord.com/channels/@me/1181405606029037652)
