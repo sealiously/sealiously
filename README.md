@@ -6,7 +6,7 @@ $\color{#389ECA}{we could be seals in love ...}$\
     
 <pre>
 lvl 265+ (casual) mobile p! player
-pr dmg 7540 + kd 24/0/10 • kda ~4.54 
+pr dmg 7540 + kd 24/0/10 • kda ~4.64 
 📍 USA, CST/gmt-5/gmt-6
 
  <img src="https://files.catbox.moe/f1ggut.gif"> <img src="https://files.catbox.moe/4nupv3.gif">
