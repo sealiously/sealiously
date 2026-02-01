@@ -10,10 +10,8 @@ pr dmg 7540 + kd 24/0/10 • kda ~4.685
 📍 USA, CST/gmt-5/gmt-6
 
  <img src="https://files.catbox.moe/f1ggut.gif"> <img src="https://files.catbox.moe/4nupv3.gif">
-i love seals & jazz, i also do art & animation!
-learning: java (AP CSA) & piano
-
-🎖️ uil theater & science • comp art/tennis/+ more
+i love seals & jazz, i also do digital art & animation
+P! is my sp/in, my current hyperfix is gachiakuta!
 </pre>
 
 [![discord (ringedyuki)](https://img.shields.io/badge/ringedyuki%20-%20%235865F2?style=plastic&logo=discord&logoColor=white)](https://discord.com/channels/@me/1181405606029037652)
