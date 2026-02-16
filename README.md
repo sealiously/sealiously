@@ -5,8 +5,8 @@ $\color{#389ECA}{we could be seals in love ...}$\
 
     
 <pre>
-lvl 285+ (casual) mobile p! player
-pr dmg 7540 + kd 24/0/10 • kda ~4.685 
+lvl 300+ (casual) mobile p! player
+pr dmg 7540 + kd 24/0/10 • kda ~4.730 
 📍 USA, CST/gmt-5/gmt-6
 
 
