@@ -7,7 +7,7 @@ $\color{#389ECA}{we could be seals in love ...}$\
 <pre>
 lvl 300+ (casual) ipad p! player
 pr dmg 8214 + kd 24/0/10
-kdr ~4.730 • wr 55.38%
+kdr ~4.7816 • wr 56.24%
 📍 USA, CST/gmt-5/gmt-6
 
 
