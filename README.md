@@ -1,4 +1,3 @@
-<br>
 call me mimi ! ♡ <br>
 ile sp728 | seals and jazz ♪ enthusiast <br>
 <br>
