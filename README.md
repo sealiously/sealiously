@@ -1,4 +1,4 @@
-call me mimi ! ♡ <br>
+call me labubu / yuki / anything u want ! ♡ <br>
 ile sp728 | seals and jazz ♪ enthusiast <br>
 <br>
 <br>
