@@ -6,7 +6,7 @@ ile sp728 | seals and jazz ♪ enthusiast <br>
 **phighting!**
 
 lvl 400+ casual ipad player <br>
-kdr 4.8962 | wr 56.88% <br>
+kda% 4.9067 | wr 57.15% <br>
 prs: kda 24/0/10 | dmg 8214 | heal 4166
 
 sword, exorspace, and valleystaff main <br>
