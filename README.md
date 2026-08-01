@@ -10,5 +10,5 @@ kda% 4.9067 | wr 57.15% <br>
 prs: kda 24/0/10 | dmg 8214 | heal 4166
 
 sword, exorspace, and valleystaff main <br>
-sometimes i play scifi, cutiespace, and vineberry ! (or other skins) <br>
+sometimes i play scifi, jesterspace, and vineberry ! (or other skins) <br>
 <br>
