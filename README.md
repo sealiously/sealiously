@@ -5,10 +5,10 @@ ile sp728 | seals and jazz ♪ enthusiast <br>
 
 **phighting!**
 
-lvl 400+ casual ipad player <br>
-kda% 4.9067 | wr 57.15% <br>
+lvl 450+ comp/cas ipad player <br>
+kda% 4.9067 | wr 58.15% <br>
 prs: kda 24/0/10 | dmg 8214 | heal 4166
 
-scifi, jesterspace, and valleystaff main <br>
-sometimes i play harpy, exor, and vineberry ! (or other skins) <br>
+seord, exor, and valleystaff main <br>
+sometimes i play harpy/scifi, jester, and vineberry ! (or other skins) <br>
 <br>
