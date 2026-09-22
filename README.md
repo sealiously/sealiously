@@ -9,6 +9,6 @@ lvl 450+ comp/cas ipad player <br>
 kda% 4.9067 | wr 58.15% <br>
 prs: kda 24/0/10 | dmg 8214 | heal 4166
 
-seord, exor, and valleystaff main <br>
+t4 sword, exor, and valleystaff <br>
 sometimes i play harpy/scifi, jester, and vineberry ! (or other skins) <br>
 <br>
