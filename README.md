@@ -1,14 +1,14 @@
-call me labu(bu) / yu / yuki or wtv! ♡ <br>
+call me labu(bu) / yuki or wtv! ♡ <br>
 ile sp728 | seals and jazz ♪ enthusiast <br>
 <br>
 <br>
 
 **phighting!**
 
-lvl 475+ comp/cas ipad player <br>
+lvl 500+ comp/cas ipad player <br>
 kda% 4.9067 | wr 58.15% <br>
 prs: kda 24/0/10 | dmg 8214 | heal 4485
 
 t4 sword & exor, t3 valleystaff <br>
-sometimes i play harpy/scifi, jester, and vineberry ! (or other skins) <br>
+sometimes i play harpy/scifi, jester, and vineberry (or other skins) <br>
 <br>
