@@ -1,4 +1,4 @@
-call me labubu / yuki / anything u want ! ♡ <br>
+call me labu(bu) / yu / yuki or wtv! ♡ <br>
 ile sp728 | seals and jazz ♪ enthusiast <br>
 <br>
 <br>
