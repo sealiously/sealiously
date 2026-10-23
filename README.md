@@ -1,5 +1,6 @@
 1rdprimitive, my name is vie <br>
-ile sp728 | seals and jazz ♪ enthusiast <br>
+ile sp728
+i like seals, jazz, and coding <br>
 <br>
 <br>
 
