@@ -1,6 +1,5 @@
 1rdprimitive, my name is vie <br>
-ile sp728
-i like seals, jazz, and coding <br>
+ile sp728 i like seals, jazz, and java <br>
 <br>
 <br>
 
