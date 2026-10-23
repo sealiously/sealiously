@@ -1,4 +1,4 @@
-call me labu(bu) / yuki or wtv! ♡ <br>
+1rdprimitive, my name is vie <br>
 ile sp728 | seals and jazz ♪ enthusiast <br>
 <br>
 <br>
